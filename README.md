@@ -6,3 +6,5 @@
 - Tokyo Drifting by Glass Animals
 - Flashback by Bien
 - Staring at the Sun by TV on the Radio
+- Out Of Touch by CUT
+- Run Free by Rachel Cantu
